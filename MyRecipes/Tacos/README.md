@@ -1,0 +1,1 @@
+It is believed that the origin of the taco started in Mexican silver mines. Mr. Pilcher believes that they came about some time in the 19th century. This hypothesis about the taco comes from the fact that the first type of taco was “taco de minero,” which translates to mean miner's tacos.
